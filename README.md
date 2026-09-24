@@ -1,1 +1,1 @@
-https://standings-queensland-charming-hawaii.trycloudflare.com/s/0OojX8EpaNei2vffaGHeXg//
+https://standings-queensland-charming-hawaii.trycloudflare.com/s/0OojX8EpaNei2vffaGHeXg/
