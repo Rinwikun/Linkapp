@@ -1,1 +1,1 @@
-https://standings-queensland-charming-hawaii.trycloudflare.com/s/0OojX8EpaNei2vffaGHeXg/
+https://answer-threatening-moore-days.trycloudflare.com/s/KPX2E47a_AZXwdyyrpbNyw/
